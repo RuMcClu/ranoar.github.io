@@ -1,2 +1,2 @@
 # ranoar.github.io
-stupidideasnobodywillsee.co.brexit
+stupidideasnobodywillsee
